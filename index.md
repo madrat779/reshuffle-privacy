@@ -38,4 +38,4 @@ If this policy changes, the updated version will be posted at this URL with a ne
 
 ## Contact
 
-For any privacy questions, contact: madrat779@toastyplens.com
+For any privacy questions, contact: madrat779@toastyplebs.com
